@@ -41,9 +41,14 @@ My followers tripled.
 
 One video hit 23,000+ views.
 
+![image](https://github.com/user-attachments/assets/e028255b-1313-4905-8925-48747118a1f9)
+
+
 I got a DM from someone asking me to “collab” (me?!).
 
 And by week two, I’d made my first affiliate commission—just by linking to a product in my bio under a video I barely touched.
+
+![sendbox](https://github.com/user-attachments/assets/115cd297-df8d-48dd-93c1-0f5643efc893)
 
 ### Let me ask you something...
 
